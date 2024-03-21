@@ -1,5 +1,5 @@
 - Olá meu chamo Junior Dheryck Oliveira de Lima.
-- Interresado em Altomação de planilhas.
+- Interesado em Altomação de planilhas.
 - Atualmente cursando Eng. Civil na Estacio de SA.
 - Perfil no linkedin: www.linkedin.com/in/junior-dheryck-oliveira-de-lima-433457181
 
